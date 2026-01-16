@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ildottores&color=b64325&label=SEGMENTS)
+![](https://komarev.com/ghpvc/?username=ildottores&color=610303&label=segments)
 
 ill make this pretty nd shit when i feel like it , you can call me whatever you want , if you dont know me just refer to me as the skin im using 
 
