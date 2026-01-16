@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=ildottores&color=b64325&label=Segments)
+
 ill make this pretty nd shit when i feel like it , you can call me whatever you want , if you dont know me just refer to me as the skin im using 
 
 i dont like to talk a lot unless im with people i know/friends , sorry guys
