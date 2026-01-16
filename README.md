@@ -3,15 +3,11 @@
 
 ![](https://komarev.com/ghpvc/?username=ildottores&color=610303&label=segments)
 
-ill make this pretty nd shit when i feel like it , you can call me whatever you want , if you dont know me just refer to me as the skin im using 
+most of the time i am afk so if you want my attention, feel free to spam my whispers until i check
 
-i dont like to talk a lot unless im with people i know/friends , sorry guys
-
-you can also c+h, ill sometimes have it in my name but thats like a 5% chance of it happening
-
-dottore haters please dni, ive hated you guys since 2018 nd you got worse over the years, especially with the lies you put on dottores character
-
-dont be shy to come interact / sit with me , if i dont reply just bother me in my whispers to grab my attention as im mainly zoned out / not paying attention to whats happening on my screen
+you can call me whatever, or refer to me as the skin im using if you dont know me, also feel free to c+h as i never have it in my name, and when i do, it will be because i am on a game or reading
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&cover_image=true&theme=novatorem&show_offline=true&background_color=9900ff&interchange=true&profanity=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&redirect=true)
+
+<img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/d6183e8c-1c4d-48fd-aa33-65f38c907491" />
