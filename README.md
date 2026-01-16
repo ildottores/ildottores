@@ -6,6 +6,8 @@
   
 ![](https://komarev.com/ghpvc/?username=ildottores&color=610303&label=segments)
 
+💉[Atabook](https://ildottores.atabook.org/)
+
 💉 most of the time i am afk so if you want my attention, feel free to spam my whispers until i check
 
 🩸 you can call me whatever, or refer to me as the skin im using if you dont know me, also feel free to c+h as i never have it in my name, nd when i do, it will be because i am on a game or reading
