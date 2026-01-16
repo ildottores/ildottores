@@ -1,5 +1,5 @@
  <div align="center">
-   <img src="https://64.media.tumblr.com/3c5ecce0d0f83ea0598df4b9672f1dd3/6eacdafb2a017a18-fb/s540x810/5909fc14140695853cc9b840de3dd8cfeafc0d9b.pnj" alt="dottore rentry graphic | Explore Tumblr posts and blogs | Tumgik"/><img width="540" height="555" alt="image" src="https://github.com/user-attachments/assets/8e136cd2-a814-4661-a1d6-9e1d23335c79" />
+  <img width="540" height="555" alt="image" src="https://github.com/user-attachments/assets/cce47f13-7925-4afd-ae1f-c0c6ea48f4cd" />
 
 ![](https://komarev.com/ghpvc/?username=ildottores&color=610303&label=segments)
 
