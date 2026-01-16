@@ -14,4 +14,4 @@ dottore haters please dni, ive hated you guys since 2018 nd you got worse over t
 dont be shy to come interact / sit with me , if i dont reply just bother me in my whispers to grab my attention as im mainly zoned out / not paying attention to whats happening on my screen
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&cover_image=true&theme=novatorem&show_offline=true&background_color=443e8e&interchange=true&profanity=false&bar_color=93cee1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&cover_image=true&theme=novatorem&show_offline=true&background_color=9900ff&interchange=true&profanity=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&redirect=true)
