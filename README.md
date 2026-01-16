@@ -7,3 +7,6 @@ you can also c+h, ill sometimes have it in my name but thats like a 5% chance of
 dottore haters please dni, ive hated you guys since 2018 nd you got worse over the years, especially with the lies you put on dottores character
 
 dont be shy to come interact / sit with me , if i dont reply just bother me in my whispers to grab my attention as im mainly zoned out / not paying attention to whats happening on my screen
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&cover_image=true&theme=novatorem&show_offline=false&background_color=150844&interchange=false&profanity=false&bar_color=5996a6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
