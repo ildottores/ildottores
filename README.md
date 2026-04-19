@@ -22,13 +22,9 @@ $\small{\textsf{I am almost ALWAYS in the Cookie Run area, so you will find me t
 <details>
   <summary> $\small{\textsf{DNI}}$ </summary>
  <div align="left">
-
-$\small{\textsf{Basic DNI criteria.}}$
-
+$\small{\textsf{Basic DNI criteria.}}$ 
 $\small{\textsf{Hazbin Hotel / Helluva Boss fans, or VivziePop fans, I don't like any of you, nor do I care if you don't support her actions.}}$
-
 $\small{\textsf{People who like problematic things.}}$
-
 $\small{\textsf{Proshippers nd Darkshippers, I just don't simply like you lot.}}$
 <div align="center">
 </details>
