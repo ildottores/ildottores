@@ -1,5 +1,10 @@
  <div align="center">
 
+<img width="825" alt=image src=https://github.com/Mr-Eel/Mr-Eel/blob/0b174da0c1001182b6032ca6e06029a1f085cbe2/tumblr_94ae48e941c71242ba20cbf68a95eaa0_199c306c_1280.webp />
+
+
+
+<img width="150" alt=image src=https://github.com/Mr-Eel/Mr-Eel/blob/67fe3091536b5f8e8be8b0de3fc963fae5d1d418/IMG_1958.gif />
   
 ![](https://komarev.com/ghpvc/?username=Mr-Eel&color=550041&label=Little-Eels)
 
