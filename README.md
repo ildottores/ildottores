@@ -27,6 +27,7 @@ $\small{\textsf{Basic DNI criteria.}}$
 $\small{\textsf{Hazbin Hotel / Helluva Boss fans, or VivziePop fans, I don't like any of you, nor do I care if you don't support her actions.}}$ 
 $\small{\textsf{People who like problematic things, including media that is seen as weird etc.}}$ 
 $\small{\textsf{Proshippers nd Darkshippers, I just don't simply like you lot. I have had bad experiences so I don't wish to interact.}}$ 
+$\small{\textsf{Those Cookie Run Kingdom fans, yr all mainly weird nd it doesn't help how yr all mainly minors making such jokes too.}}$
 <div align="center">
 </details>
 
