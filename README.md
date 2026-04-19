@@ -8,7 +8,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&cover_image=true&theme=novatorem&show_offline=true&background_color=9900ff&interchange=true&profanity=false&bar_color=550041&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&redirect=true)
 
-
+<img width="175" alt=image src=https://github.com/Mr-Eel/Mr-Eel/blob/36e85752f5114c1a8959e76ea2c84f61bdebb935/IMG_1959.webp />
 <div align="center">
 <details>
   <summary> $\small{\textsf{INFO}}$ </summary>
