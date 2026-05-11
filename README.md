@@ -20,7 +20,7 @@ $\small{\textsf{sign ATA for Moray Eel cuddles}}$
   <summary> $\small{\textsf{INFO}}$ </summary>
  <div align="left">
 $\small{\textsf{You can call me Eel if you don't know me. It's a preferred name when I'm around others and is mainly becoming my online name.}}$ 
-$\small{\textsf{I am 18 next month. So PLEASE do NOT interact if you are under 15. I am uncomfortable interacting with anyone below 15.}}$
+$\small{\textsf{!!I AM 18. So PLEASE do NOT interact if you are under 15. I am uncomfortable interacting with anyone below 15.}}$
 $\small{\textsf{I am mainly non-verbal, I do not like speaking in public UNLESS I am around people I know.}}$
 $\small{\textsf{I am almost ALWAYS in the Cookie Run area, so you will find me there most of the time.}}$
 <div align="center">
